@@ -2,4 +2,4 @@
 
 Hello !
 
-I have been studying Communictaion Design since 2016
+I have been studying Communictaion Design since 2016 
